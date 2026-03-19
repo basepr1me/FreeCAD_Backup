@@ -1,0 +1,1 @@
+SnapMaker J1 Front Loading Filament Spool Holder by Jackkwan on Thingiverse: https://www.thingiverse.com/thing:5849797
